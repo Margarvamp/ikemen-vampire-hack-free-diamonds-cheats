@@ -1,2 +1,5 @@
-# ikemen-vampire-hack-free-diamonds-cheats
-Ikemen Vampire Hack 400k free diamonds Mod Cheats IOS android tips Updated
+# Ikemen Vampire Hack 400k free diamonds Mod Cheats IOS android tips Updated
+
+Ikemen Vampire Hack 400k free diamonds Mod Cheats IOS android tips Updated - Arrange your dodge actions properly to maximize your attack and defense effects with working Ikemen Vampire Hack IOS. Dodge to the side of your opponent's attack. For example, if they are attacking from the left (your right), dodge to your right and vice versa. Even if you don't get a big "counterattack" pop-up, you should still be able to follow up, about 3-5 good hits, but if you get a pop-up, then you should be able to land 10-15 cuts continuously before you have to worry about dodging again. You can be desire, anger, greed or pride, and you can change them at any time with Ikemen Vampire Otome Games Cheats Mod tips. Anger attacks more, and desire strikes faster. Pride has crazy and powerful attacks, and jealousy is very fast moving, allowing you to avoid attacks more easily. Choose one according to your favorite style of fighting. In addition, different vampires can fight different vampires more or less.
+
+<a href="https://lahasoft.com/ikemen-vampire/">visit here</a>
